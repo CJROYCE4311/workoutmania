@@ -1,0 +1,33 @@
+SHOPFind A GymEventsJoin NowJoin NowLEGACY DAY IS Live: JULY 24. OUR BIGGEST EVER SALE. SAVE THE DATE.BLOGThe Evolution of Programming
+Discover how programming has evolved over time and how HWPO Training creates challenging, balanced, and fun workouts to drive progress and lasting fitness success.
+Jan 2, 2025
+AuthorMichele LetendreHWPO Affiliate Head Coach
+Why our changing landscape is good for our fitness and our members.
+Programming is at the center of everything we do at HWPO Training. If we are here today, supporting thousands of people all over the world it’s because one day, 24 years ago, CrossFit.com posted its very first workout online. That moment transformed fitness forever, democratizing access to a new and exciting way of training.
+Programming as a creative process
+Programming has evolved tremendously since those early days, becoming one of the most discussed and debated aspects of CrossFit. The Creator of CrossFit once said, “The art is in the programming,” and I couldn’t agree more. In fact, programming and art share a striking similarity: both are mediums for creativity, expression, and problem-solving. Just as art evolves to reflect its time and challenges, programming adapts to meet the needs of athletes, pushing boundaries and redefining possibilities.
+We’re going to dive into a VERY basic review of art history. Art began as a need for humans to express what they saw. Classical art, with its precise depictions of reality, dominated for centuries. Initially, it focused on religious themes—painstakingly crafted to reflect divine perfection. Over time, the focus expanded to include royalty, nobility, and eventually, everyday life.
+Then came the Impressionists, a group of revolutionary painters in the 19th century who did something unheard of: they embraced their medium. Instead of striving for photographic precision, they used the texture of paint, the strokes of their brush, and the movement of their technique to create art that felt alive. They changed how people viewed art forever and paved the way for movements like Cubism, Pointillism, and Abstract Expressionism.
+From tradition to innovation
+CrossFit-style training has undergone a similar transformation. The methodology shared on CrossFit.com was the spark, but what followed has been an explosion of creativity and progress. Variations, adaptations, and entire sub-communities have flourished, each finding new ways to push boundaries.
+A major catalyst for this evolution was the CrossFit Games. Designed to test the limits of human potential, the Games have consistently forced athletes, coaches, and programmers to innovate. Every event presents a new problem—and solving those problems drives progress.
+Lessons from the CrossFit Games
+Take the 2010 CrossFit Games, the first held in a stadium. The opening workout, "Amanda," featured a twist: the rings were set so high that athletes couldn’t reach them from the ground. This seemingly minor change had a massive impact. It forced athletes to find new ring muscle-up techniques that would allow them more flexibility. Almost overnight, we became better athletes, better coaches, and better programmers. Specialty gymnastics coaches like Carl Paoli, Dusty Highland & organizations like CrossFit Gymnastics began to emerge, expanding the skill set of the entire community.
+In 2011, swimming was introduced to the Games. In 2012, athletes tackled a triathlon. In 2013, they faced a grueling half-marathon row. Each new test shifted the focus in our fitness world. Suddenly, endurance training was in the spotlight, and gyms everywhere adapted.
+This cycle—competition breeding progress—benefits not just elite athletes but anyone within this huge community. The lessons learned on the competition floor trickle down to gyms worldwide, shaping how we train and coach. As a coach, I’ve felt this firsthand, whether pushing my own limits or helping athletes like Patrick Vellner navigate the ever-evolving demands of competition.
+This relentless drive for improvement shapes the programming I write every day for HWPO Affiliate programming. Our goal isn’t just to make people fitter—it’s to make them fitter for longer. By blending proven systems with fresh ideas, we create programming that’s as effective as it is enjoyable.
+We’re now in an era where programming feels a lot like modern art.
+There are countless ways to achieve the ultimate goal: helping members live their healthiest lives. But programming is also critical for the health of our gyms. Members are more informed than ever, with opinions shaped by social media and access to endless fitness trends. Post-pandemic, the fitness landscape has exploded, from record-breaking attendance at running events to the growing popularity of Hyrox. Programming is how we rise to meet these challenges.
+Balancing novelty and tradition
+Our members, some of whom have been doing CrossFit for over a decade, crave novelty and variety. Keeping things fresh is essential, but so is staying true to the core principles of CrossFit. At HWPO, our programming stands on three pillars:
+1 Challenging: We push members to grow, meet their goals, and tackle what’s next.
+2 Balanced: Practical, effective programming ensures long-term health and progress.
+3 Fun: We embrace creativity and variety to keep members engaged and excited.
+Pushing the boundaries together
+The beauty of our training system is its ability to touch every aspect of fitness—strength, endurance, gymnastics, and more. Our programming reflects that diversity, responding to trends and staying one step ahead. With HWPO, your gym has a partner dedicated to supporting your success, helping your members thrive, and ensuring CrossFit remains the most effective, enjoyable path to health and fitness.
+The evolution of programming is ongoing, and every workout is a step forward. Together, we can keep pushing the boundaries of what’s possible—for ourselves, our members, and the CrossFit community as a whole.
+‍
+No items found. No items found. No items found.
+Join TODAY
+HWPO AFFILIATE gives you the tools and resources from experts in the industry so you can be the best coach you can be.
+Try HWPO AFFILIATE for FREEHWPO GIVEHWPO is HSA/FSA eligible learn moreAbout Mat FraserCommunity EventsAffiliate ProgrammingFind a gymHelpdeskCIRCLEcareersAmbassadorsAccount LoginJoin NowClient TermsWebsite Terms Of UseMobile Terms of ServicePrivacy PolicyCookie NoticeManage CookiesCopyright © HWPO . All Rights Reserved.Website Design by Digital Mast
