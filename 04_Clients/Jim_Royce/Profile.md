@@ -20,3 +20,8 @@
 
 - **Strength:** Maintenance of current 1-rep max numbers in major lifts (e.g., Deadlift, Clean & Jerk, Squat).
 - **Engine:** Target a ~5% improvement in key aerobic/lactic threshold benchmarks over the cycle (e.g., 2k Row time, 1-mile run).
+
+## Contact Information
+- **Name:** James (Jim) Royce
+- **Phone:** (413) 246-6787
+- **Email:** j14royce@gmail.com
