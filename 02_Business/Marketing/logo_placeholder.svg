@@ -1,0 +1,14 @@
+<svg width="200" height="200" viewBox="0 0 200 200" xmlns="http://www.w3.org/2000/svg">
+  <!-- Background -->
+  <rect width="200" height="200" fill="#1a1a1a"/>
+  
+  <!-- The "U" for Unbound -->
+  <path d="M60 40 V130 C60 160 140 160 140 130 V40" fill="none" stroke="#00ffff" stroke-width="15" stroke-linecap="round"/>
+  
+  <!-- The "Break" / Arrow (The Unbound element) -->
+  <path d="M140 60 L140 30 L170 30" fill="none" stroke="#00ffff" stroke-width="15" stroke-linecap="round" stroke-linejoin="round"/>
+  <path d="M140 30 L115 55" fill="none" stroke="#00ffff" stroke-width="15" stroke-linecap="round"/>
+  
+  <!-- Text Placeholder -->
+  <text x="100" y="185" font-family="Arial, sans-serif" font-size="18" font-weight="bold" fill="white" text-anchor="middle">UNBOUND</text>
+</svg>
